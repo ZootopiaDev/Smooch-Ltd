@@ -4,6 +4,4 @@ This work is the intellectual property of PEOPLE---JPG LLC. Unauthorized use, di
 
 You may not use this work without providing appropriate credit to PEOPLE---JPG & DIFA.
 
-For inquiries regarding licensing, please contact búsiness@people---jpg.com.
 
-[2024] [PEOPLE---JPG]
